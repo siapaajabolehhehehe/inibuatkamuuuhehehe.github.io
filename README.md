@@ -1,2 +1,2 @@
 # inibuatkamuuuhehehe.github.io
-ini buat kamuuu &lt;3
+ini buat kamuuu, meskipun kadang cuek tetep I lobe youuu <3 &lt;3
